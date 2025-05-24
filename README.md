@@ -16,7 +16,7 @@ Get a solid [**50% discount**](https://www.pipedrive.com/) with this Pipedrive c
 
 Why pay full? When you can get a Pipedrive subscription for half the price.
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXeKFioQ79SWX1uakIN5oVNJGD3KFN0xAzXlHTOvszyP-aadzMUlIAhlvQ0ZbmC2VO7S9Xsu4dfE-noKzJB7yj0V-mBRtV1AXfJ3wBX5FWWoFH1StN11SGKm8lmCFw-3O6Oo2I999A?key=oflR0HYjeSZ3FVn691MXAA)
+![Pipedrive coupon](https://lh7-rt.googleusercontent.com/docsz/AD_4nXeKFioQ79SWX1uakIN5oVNJGD3KFN0xAzXlHTOvszyP-aadzMUlIAhlvQ0ZbmC2VO7S9Xsu4dfE-noKzJB7yj0V-mBRtV1AXfJ3wBX5FWWoFH1StN11SGKm8lmCFw-3O6Oo2I999A?key=oflR0HYjeSZ3FVn691MXAA)
 
 With this Pipedrive coupon, you will get access to:
 
@@ -29,7 +29,7 @@ With this Pipedrive coupon, you will get access to:
 
 Get a [**35% welcome**](https://www.pipedrive.com/) discount on Pipedrive. If you are a new subscriber, use this Piepedriver promo code.
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdNDXHlaa6M6gS-5xHnLLJgcoBn87PQfuO4FCyqVGcdusNGNkfDkWaPzcuCTwqmOKkbmW9ckgsd03GrinBPsRQUMTacaj9WAVphLUrmA4SkVFAtb7o2kRQ4tGDWQ91KVKJZH6_LQA?key=oflR0HYjeSZ3FVn691MXAA)
+![pipedrive discount for new users](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdNDXHlaa6M6gS-5xHnLLJgcoBn87PQfuO4FCyqVGcdusNGNkfDkWaPzcuCTwqmOKkbmW9ckgsd03GrinBPsRQUMTacaj9WAVphLUrmA4SkVFAtb7o2kRQ4tGDWQ91KVKJZH6_LQA?key=oflR0HYjeSZ3FVn691MXAA)
 
 This Pipedrive discount code offers you:
 
@@ -42,7 +42,7 @@ This Pipedrive discount code offers you:
 
 Try Pipedrive risk-free with a **[14-day free trial](https://www.pipedrive.com/)**. You don’t need to provide any credit card details to start your free trial with Pipedrive.
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcZxobMOaYm_zfPW9csm894jKeE5Ip63TqfudQw6SeCYL9RoRqmUHg3RWQBxUq1f_DjdfE0Fvw3aQ58N7MtzTq1bPodXHn5tGQOt3L5VQUIHiG5eoHc_nyNTAI7at503Vq21UJRSA?key=oflR0HYjeSZ3FVn691MXAA)
+![pipedrive free trial](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcZxobMOaYm_zfPW9csm894jKeE5Ip63TqfudQw6SeCYL9RoRqmUHg3RWQBxUq1f_DjdfE0Fvw3aQ58N7MtzTq1bPodXHn5tGQOt3L5VQUIHiG5eoHc_nyNTAI7at503Vq21UJRSA?key=oflR0HYjeSZ3FVn691MXAA)
 
 ## Pipedrive Startup Discount to Save 40%
 
@@ -50,7 +50,7 @@ Try Pipedrive risk-free with a **[14-day free trial](https://www.pipedrive.com/)
 
 This is a limited-time offer, click the discount button below to claim this offer before its gone.
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfYkF0ivolnFCgwJgOMqSYTQi-hSsO82HPmOT_HGe_F4K5UDAGca7uqnl1DsR0qZWzFzg_Sf5qJiJWlI3IIReChS--vIXsEYxA0K1AtkKJUahfCmXhrbUaI7dc2r6HHYAJ6vkrWrA?key=oflR0HYjeSZ3FVn691MXAA)
+![Pipedrive startup discount](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfYkF0ivolnFCgwJgOMqSYTQi-hSsO82HPmOT_HGe_F4K5UDAGca7uqnl1DsR0qZWzFzg_Sf5qJiJWlI3IIReChS--vIXsEYxA0K1AtkKJUahfCmXhrbUaI7dc2r6HHYAJ6vkrWrA?key=oflR0HYjeSZ3FVn691MXAA)
 
 ## How to Apply the Pipedrive Coupon Code
 
@@ -58,15 +58,15 @@ Follow these simple steps to claim a Pipedrive promo code.
 
 **Step 1:** Go to the **Pipedrive official website** with this [**discount link**](https://www.pipedrive.com/).
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcAVkwxeYMoVFn3mhNEDXK7nwZEraqe-T-Okwtc_jX4qa456iqbgYuHZuT4HyJNfklHNmzKvU9daDTZT5lLa6K4SXeBOzxoilZAYZvjP7mp3CR0hsKW9FpPpMntrNKX8nSPA9ahng?key=oflR0HYjeSZ3FVn691MXAA)
+![pipedrive official website](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcAVkwxeYMoVFn3mhNEDXK7nwZEraqe-T-Okwtc_jX4qa456iqbgYuHZuT4HyJNfklHNmzKvU9daDTZT5lLa6K4SXeBOzxoilZAYZvjP7mp3CR0hsKW9FpPpMntrNKX8nSPA9ahng?key=oflR0HYjeSZ3FVn691MXAA)
 
 **Step 2:** Click on the pricing tab and **select a plan** that suits your needs.
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcBo4AYqrvfTnIFuWcax08HfXZtqP25o_6_P5BXi3LTI1u-GuqCRweJcGKk3BCj_KICplm2WkhYRD2qQykERgo93ZjE10LvfSQwS805MX66SxZ5jXzIX_rcSSN6HPlML9VfQxHTVg?key=oflR0HYjeSZ3FVn691MXAA)
+![select a plan](https://lh7-rt.googleusercontent.com/docsz/AD_4nXcBo4AYqrvfTnIFuWcax08HfXZtqP25o_6_P5BXi3LTI1u-GuqCRweJcGKk3BCj_KICplm2WkhYRD2qQykERgo93ZjE10LvfSQwS805MX66SxZ5jXzIX_rcSSN6HPlML9VfQxHTVg?key=oflR0HYjeSZ3FVn691MXAA)
 
 **Step 3:** Now, **sign up on Pipedrive** by entering an email ID, or you can use GMAIL.
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXd8xF5JPt9XlXpsifuZTmuYvdSLsqaRy8IgGIxx_ScElsa0679Rz5ptzVCsHI8B0fArpMerJWhUXFk0kqCOky-QF3vkAx6PpOPlKutuHe-zX_kTnW6mODfRMUPjZ9qgc0kGsTokPg?key=oflR0HYjeSZ3FVn691MXAA)
+![create an account](https://lh7-rt.googleusercontent.com/docsz/AD_4nXd8xF5JPt9XlXpsifuZTmuYvdSLsqaRy8IgGIxx_ScElsa0679Rz5ptzVCsHI8B0fArpMerJWhUXFk0kqCOky-QF3vkAx6PpOPlKutuHe-zX_kTnW6mODfRMUPjZ9qgc0kGsTokPg?key=oflR0HYjeSZ3FVn691MXAA)
 
 **Note:** You are free to use the platform for 14 days.
 
@@ -78,7 +78,7 @@ Congrats! On claiming your Pipedrive coupon code.
 
 Pipedrive offers **4 core plans**. I have made a comprehensive list below for you to check out.
 
-[](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfg8ppw24ykKAU5hdv1YgDV85mxGWFhoPUSpwULN4gn-CD_3g-JCvqvO54BoKAeD5amIS--GrUG1CQBGdeTTT1Pf7-QQi6IiTlJEah-cnI4jcgPbTuWkZK38-S4xuwcGi28O09Ebg?key=oflR0HYjeSZ3FVn691MXAA)
+![pipedrive pricing](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfg8ppw24ykKAU5hdv1YgDV85mxGWFhoPUSpwULN4gn-CD_3g-JCvqvO54BoKAeD5amIS--GrUG1CQBGdeTTT1Pf7-QQi6IiTlJEah-cnI4jcgPbTuWkZK38-S4xuwcGi28O09Ebg?key=oflR0HYjeSZ3FVn691MXAA)
 
 | Plan | Monthly Billing (per user) | Annual Billing (per user) |
 | --- | --- | --- |
